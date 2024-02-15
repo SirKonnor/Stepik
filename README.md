@@ -24,4 +24,15 @@
 
 ![1 2 10](https://github.com/SirKonnor/Stepik/assets/144115654/398dc62b-a9cc-430c-8dc6-fad5a5002e41)
 
+![1 3](https://github.com/SirKonnor/Stepik/assets/144115654/c7483939-b55a-445b-8b44-c8a9d1646546)
+
+![20](https://github.com/SirKonnor/Stepik/assets/144115654/ca9b4c50-3c52-4665-93fd-4bda81109364)
+
+![21](https://github.com/SirKonnor/Stepik/assets/144115654/cd416045-f43e-426b-b82d-1687a86039e7)
+
+![22](https://github.com/SirKonnor/Stepik/assets/144115654/a2020cc6-be02-46dc-8b10-7b57fd1f75f1)
+
+![23](https://github.com/SirKonnor/Stepik/assets/144115654/6fb54e61-a7ba-42cc-8f86-654fd653fb4a)
+
+
 
