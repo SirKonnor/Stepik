@@ -34,5 +34,22 @@
 
 ![23](https://github.com/SirKonnor/Stepik/assets/144115654/6fb54e61-a7ba-42cc-8f86-654fd653fb4a)
 
+![24](https://github.com/SirKonnor/Stepik/assets/144115654/e144fbbd-3736-4d1a-b70e-ab70389c8e13)
 
+![25](https://github.com/SirKonnor/Stepik/assets/144115654/4674f85a-fcb3-4eed-8a4d-56f2e15d2fa6)
 
+![26](https://github.com/SirKonnor/Stepik/assets/144115654/d067b860-0876-4907-ac90-bd3693590f6a)
+
+![27](https://github.com/SirKonnor/Stepik/assets/144115654/6cdf1feb-8128-4844-8067-ef049d60b509)
+
+![28](https://github.com/SirKonnor/Stepik/assets/144115654/018c6f04-2805-4d0b-a250-76739aaa462e)
+
+![29](https://github.com/SirKonnor/Stepik/assets/144115654/c2bff926-542f-4f12-b42b-56f188845b05)
+
+![30](https://github.com/SirKonnor/Stepik/assets/144115654/3169a62c-f4ed-4106-806f-b03effca2d42)
+
+![31](https://github.com/SirKonnor/Stepik/assets/144115654/134b298d-69d3-48eb-b8f1-5079a487a382)
+
+![32](https://github.com/SirKonnor/Stepik/assets/144115654/471474ba-8360-4a9c-9bb0-098933cd3914)
+
+![33](https://github.com/SirKonnor/Stepik/assets/144115654/c9360694-0390-4bd7-ac4c-1fb046d3f83a)
